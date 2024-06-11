@@ -13,4 +13,4 @@ My resume is enclosed for your consideration. Should you have any questions or w
 I appreciate your time and consideration.  
  
 Sincerely, 
-KULDIP DOULATRAO SHEJUL
+VAIJNATH DOULATRAO SHEJUL
