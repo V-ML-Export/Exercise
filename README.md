@@ -8,7 +8,7 @@ My academic journey began at the Swami Ramanand Teerth Marathwada University, wh
  
 Along with my skills, I will bring a resourceful and energetic environment to the organization, with a desire and willingness to work with the team. In my previous positions, I have consistently followed the precision and quality standards expected by management. I am confident that I can be a great asset to your organization and assist you in reaching your technological and financial goals. Due to my ability to work under pressure and meet tight deadlines, I will quickly become a valuable member of your organization. 
  
-My resume is enclosed for your consideration. Should you have any questions or wish to schedule an interview, please do not hesitate to call me at (+91) 950 3256 957. I am looking forward to hearing from you soon. 
+My resume is enclosed for your consideration. Should you have any questions or wish to schedule an interview, please do not hesitate to call me at (+91) 8766 468 697. I am looking forward to hearing from you soon. 
  
 I appreciate your time and consideration.  
  
